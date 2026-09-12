@@ -1,0 +1,10 @@
+#  Forbidden Land
+
+On the borders of the Abyss of Demons, countless armies are stationed. Each nation has built psionic walls along its coastal borders, led by powerful beings at the Sovereign Realm. The seas teem with demons; this has become a true forbidden zone for life. Communication and transportation between nations rely entirely on expensive psionic legendary arrays. Large armies are regularly dispatched daily to pacify the oceans, preventing the demonic forces from growing too strong. Yet, one landmass has still been breached by demonic armies.
+Do you know why that place is a forbidden land? Because it's shrouded in mist, and legend has it that it's inhabited by an ultimate demon. Even those at the Sovereign Realm who entered it never returned. Therefore, the Empire sealed off these areas, marking them in red on maps. Thus, it's considered the most dangerous labyrinth.
+There are labyrinths in the world, and it is said that these labyrinths are the gateways to various worlds.
+At first glance, it seems like a cheerful and ordinary world, but as time goes on, there's always an inexplicable sense of unease, as if it's shrouded in some kind of fog.
+She doesn't remember who she is, and she can always see things that others can't. However, when she secretly tells those around her, she always says something like, "Are you hallucinating?"
+
+There is a forbidden place that is not dark, but is perpetually blanketed in heavy snow. Strangely, despite the heavy snowfall, the ground is covered only in a thin layer; the snowflakes feel weightless, almost ghostly. People only feel a bone-chilling cold and a frantic, agonizing warning in their minds. After a while, it seems even the spirits themselves will freeze to death there, but this freezing isn't the cold of the season; it's a dulling of the senses. Legend has it that the evil ruler of this place is a little girl whose face is obscured, trapped in a fairytale dream from which she cannot awaken. Those trapped within die with smiles on their faces, as if they have received some kind of redemption, or wander through the fairytale town like the living, completely unaware of their own death.
+

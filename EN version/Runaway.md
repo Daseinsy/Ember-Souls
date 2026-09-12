@@ -1,0 +1,5 @@
+# Runaway
+
+He was born into a noble family, but he grew weary of this life and wanted to forge his own path. After arguing with his parents, he ran away from home and built his own business. He was ambitious, capable, and persevering. He had moments of awakening and had helped many people. But ultimately, he became a dragon again. Because of his class background, he lacked innate wisdom; his genes determined his ultimate descent into mediocrity . As a wealthy nobleman who relied on others, he could never truly empathize with the plight of the lower classes.
+This is different from Siddhartha, who was born into a Brahmin family. Although Brahmins belonged to the slave-owning class, they still had a tradition of thought and even asceticism, so theoretically, a rebel could emerge from among them. But this is not the case for others. You have to believe in the inertia of history. Someone who grew up in a noble family, without experiencing major upheavals, without the genes of the lower class, and without the environment of the lower class, no matter how kind or empathetic he is, cannot truly sympathize with the lower class.
+

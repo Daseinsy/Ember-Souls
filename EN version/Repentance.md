@@ -1,0 +1,5 @@
+#  Repentance
+
+Lin Jing also makes mistakes. He remembers every single one, and his own boastful behavior. Some mistakes were made when he was young and ignorant. Some were due to his own predicament. He also lies or conceals facts detrimental to himself. Although he has never used these lies to harm others, he only lies to protect himself. However, he is intolerant of even the slightest imperfection; he constantly reflects on and attacks himself. Whenever he has free time, he thinks of the sins he has committed, or the darker aspects he has concealed well, or even only acted upon in his mind. Sometimes, watching a child playing happily with their family, he suddenly flashes back to himself rushing over, slamming the child to the ground, being torn apart by his angry family, being pointed at and judged in disbelief by his relatives, and finally being executed by the divine court. He feels that all humans are born burdened with original sin, and he is no exception. His nature contains both a bright and a savage side, and every night he often feels these two monsters struggling and fighting, but he is powerless to stop them.
+
+

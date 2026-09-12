@@ -1,0 +1,4 @@
+#  Pain and Anger
+
+That was the first time Lin Jing had ever been so angry. He whipped the corpse of that ordinary criminal, his furious appearance resembling an excessively enraged lion. At that moment, he had completely lost his reason, his sense of proportion, and all that remained was a pure impulse to destroy everything he disliked. He couldn't bear to see others living well, because it was a stark contrast, which was why he had the urge to destroy. He couldn't tolerate even the smallest things that didn't go his way. This was a frenzied rage, an irrational rage, an extreme rage. And this rage had nothing to do with ethics; it was the process by which a person's prefrontal cortex, due to long-term pressure, finally lost its ability to control itself and released all the suppressed pain.
+
