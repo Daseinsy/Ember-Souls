@@ -1,0 +1,4 @@
+#  Starting Line
+
+People have never realized, or even if some have, they dare not speak out, that in any supposedly fair competitive selection process, children from lower socioeconomic backgrounds always exert far more effort and possess far more talent just to barely stand on the same rank as children who have it much easier and are of average talent. And afterwards, they are highly likely to fall far behind in both fame and ability. Tragically, this is a choice made by the masses themselves; they believe that hard work can change one's destiny, yet they are unwilling to acknowledge the fact that life is inherently unequal. The competition isn't relatively fair; it doesn't even achieve relative fairness. But those poor children don't hope for direct upward mobility; they hope their efforts will be rewarded accordingly. Yet, they don't even deserve this pitiful hope.
+

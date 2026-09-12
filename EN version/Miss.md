@@ -1,0 +1,5 @@
+# Miss
+
+The daughter of a powerful figure has skin so white it seems to glow, a goddess-like appearance, and an ethereal air. She speaks softly and gently to commoners, and even floats to life when a child falls, but washes her hands immediately afterward. The summoner has a snow-white steed. The young lady herself isn't bad, but she's destined to be unable to understand commoners—this is the difference in class.
+A wealthy heiress—with psionic circuits embedded beneath her skin and a crystal between her brows like a third eye. She was born to be at the top of the pyramid, but she wasn't entirely cold-hearted. Her dilemma lay in possessing everything, yet not knowing what she truly wanted. Her family controlled the economic lifeline of the divine realm, and she had been groomed from childhood to be the perfect heir. Yet, she would occasionally gaze blankly at the candlelight of the lower city from her balcony late at night. She didn't know that behind those lights were living, breathing people; she only knew they were "data that needed to be managed."
+

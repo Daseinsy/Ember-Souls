@@ -1,0 +1,9 @@
+#  Mediocre and boring upgrade
+
+The appeal of games, online novels, and short and long videos simply elevates the low-level dopamine levels of real-world activities like eating, studying, power struggles, and celebrity worship—which rely on leveling up and instant rewards—to a higher level. In fact, you'll find that without exception, all appealing things are related to dopamine secretion.
+So don't think that upgrades and rewards are low-level. They are indeed low-level, but humans are inherently a low-level species, relying on the dopamine released from these low-level pleasures to live happily. No matter how strong a person is, they can't change this basic biological law for the time being. They are essentially still people who like low-level interests, only they have changed to those seemingly elegant but actually still based on the logic of upgrades and rewards, such as antique and art collection design and management.
+The higher-level upgrades are no longer simple upgrades, but rather enjoying the storyline while upgrading. The storyline is the main focus and the upgrade is secondary. This way, a small amount of dopamine can be used to activate more opioid and serotonin systems, making people feel warm, satisfied and calm rather than simply excited.
+
+Cultivation advancement requires a large amount of spirit stones, which are essentially currency. But where does one acquire so many spirit stones, and how are they stored? Typically, they are stored in one's own personal vault. This requires a spiritual cultivator specializing in spatial manipulation to package and encapsulate their space into a spatial necklace. The spirit stones within can be absorbed and used to enhance one's strength. In short, those with resources cultivate faster; those without resources must rely solely on themselves. Ordinary people who cannot afford spatial equipment store their spirit stones in a spiritual vault for unified management.
+
+
