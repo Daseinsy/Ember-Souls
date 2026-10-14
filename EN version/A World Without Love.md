@@ -1,2 +1,0 @@
-#  A World Without Love
-
